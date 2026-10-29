@@ -61,7 +61,7 @@ I'm focused on:
 ## 🤝 Connect With Me
 
 - **GitHub:** [raza-ahmad-hassan](https://github.com/raza-ahmad-hassan)
-- **LinkedIn:** [Rana Ahmad](https://www.linkedin.com/in/rana-ahmad-104b09437/)
+- **LinkedIn:** [Raza Ahmad Hassan](https://www.linkedin.com/in/rana-ahmad-104b09437/)
 
 ---
 
